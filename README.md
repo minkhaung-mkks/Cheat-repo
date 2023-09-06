@@ -7,6 +7,7 @@ Day 3 : 05/07/2023 : Not really feeling well today.
 Day 4 : 06/07/2023 : Sick Day
 Day 5 : 08/07/2023 : Rest Day
 Day 6 : 16/08/2023 : Sick Day
-Day 7 : 17/09/2023 : Still have nausea today, but not as bad as yesterday
-Day 8 : 19/09/2023 : I missed a push yesterday already but I dont wanna miss another one today, (fingers crossed I get better soon)
-Day 9 : 24/09/2023 : Not feeling well, I dk when I gonna recover from this cold or whatever it is
+Day 7 : 17/08/2023 : Still have nausea today, but not as bad as yesterday
+Day 8 : 19/08/2023 : I missed a push yesterday already but I dont wanna miss another one today, (fingers crossed I get better soon)
+Day 9 : 24/08/2023 : Not feeling well, I dk when I gonna recover from this cold or whatever it is
+Day 10 : 06/09/2023 : Rest day
