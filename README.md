@@ -12,3 +12,4 @@ Day 8 : 19/08/2023 : I missed a push yesterday already but I dont wanna miss ano
 Day 9 : 24/08/2023 : Not feeling well, I dk when I gonna recover from this cold or whatever it is
 Day 10 : 06/09/2023 : Rest day
 Day 11 : 09/09/2023 : Was doing schoolwork 
+Day 12 : 20/09/2023 : Not really sure about what to do next and also was helping my friend out today.
