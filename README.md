@@ -13,3 +13,4 @@ Day 9 : 24/08/2023 : Not feeling well, I dk when I gonna recover from this cold 
 Day 10 : 06/09/2023 : Rest day
 Day 11 : 09/09/2023 : Was doing schoolwork 
 Day 12 : 20/09/2023 : Not really sure about what to do next and also was helping my friend out today.
+Day 13 : 25/09/2023 : No electricity today, honestly dont feel like doing anything after such a hot day.
