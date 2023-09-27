@@ -15,3 +15,4 @@ Day 11 : 09/09/2023 : Was doing schoolwork
 Day 12 : 20/09/2023 : Not really sure about what to do next and also was helping my friend out today.
 Day 13 : 25/09/2023 : No electricity today, honestly dont feel like doing anything after such a hot day.
 Day 14 : 26/09/2023 : No electricity again today, It seems its going to be like this from now on till the next rainy season, I hope not but things are not looking good. I gonna try to find a time to work with the new electricity schedule but not really sure how to at all honestly.
+Day 15: 27/09/2023 : Not sure if the electricity is gonna go out again today later so gonna take this time to get my push going. If the issue presists I just gonna let my streak die.
